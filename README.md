@@ -13,4 +13,4 @@ nog meer aanpassingen!!!!!!!!
 feature wally nieuw2 aanpassingen!!!!!!!!!!!!!!!!!!!!
 
 
-is dit te zien?????
+weg
